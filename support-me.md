@@ -1,6 +1,6 @@
 # Help Me Shine Brighter
-###### \*Make sure to use the links below, otherwise I won't get anything
-- Open an investing account using my links - we'll both get free stock!
+
+### Open investing accounts _using my links_ - we'll both get free stock!
   - [Robinhood](https://join.robinhood.com/daniels20863)
   - [Webull](https://a.webull.com/8kstecCtaeVS4ZsVbz)
   - [Public.com](https://share.public.com/danielspringer)
@@ -12,5 +12,5 @@
 
 ## Other
 - Get my **free** apps [here](https://apple.co/3uyCNct)
-- _Last but not least...please share this page with friends and family! Thank you ❤️_
-- Links not working? Please email me: https://forms.gle/nkLPf2BcZy8V3VHA9
+- Last but not least...please share this page with friends and family! Thank you ❤️
+- Links not working? [Let me know](https://forms.gle/nkLPf2BcZy8V3VHA9)
