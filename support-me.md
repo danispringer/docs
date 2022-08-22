@@ -11,6 +11,6 @@
 - Bitcoin (BTC **ONLY**) bc1qvc6hnxsltuwlfgjddrx3xq5z5ndv84f2z5dc4h
 
 ## Other
-- Get my **free** apps [here](https://apple.co/3uyCNct)
+- Buy my apps [here](https://apple.co/3uyCNct)
 - Last but not least...please share this page with friends and family! Thank you ❤️
 - Links not working? [Let me know](https://forms.gle/nkLPf2BcZy8V3VHA9)
