@@ -1,11 +1,12 @@
 # Help Me Shine Brighter
+## Open accounts using **my links below**, and we both get some free stuff
 
-### Investing accounts - use my links so we both get free stock!
+### Investing Accounts
   - Join Robinhood using code [daniels20863](https://join.robinhood.com/daniels20863)
   - Join Webull using link [Webull](https://a.webull.com/8kstecCtaeVS4ZsVbz)
   - Join Public.com using link [Public.com](https://share.public.com/danielspringer)
   - Join Moomoo using link [Moomoo](https://j.moomoo.com/00kcml)
-### Car ride accounts - use my links so we both get a discount
+### Car Ride Accounts
   - Join Revel using code [6pm85f](http://app.gorevel.com/redeem-code/6pm85f)
   - Join Lyft using code [SPRINGER87167](https://www.lyft.com/i/SPRINGER87167?utm_medium=p2pi_iacc)
 
