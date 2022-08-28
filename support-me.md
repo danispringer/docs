@@ -5,6 +5,7 @@
   - [Webull](https://a.webull.com/8kstecCtaeVS4ZsVbz)
   - [Public.com](https://share.public.com/danielspringer)
   - [Moomoo](https://j.moomoo.com/00kcml)
+  - Join Revel using code [6pm85f](http://app.gorevel.com/redeem-code/6pm85f)
 
 ### Donations
 - [PayPal Tip Jar](https://www.paypal.com/paypalme/danielspringerpaypal)
