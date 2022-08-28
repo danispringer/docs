@@ -1,5 +1,5 @@
 # Help Me Shine Brighter
-## Open accounts using **my links below**, and we both get some free stuff
+#### Open accounts using **my links below**, and we'll both get some free stuff
 
 ### Investing Accounts
   - Join Robinhood using code [daniels20863](https://join.robinhood.com/daniels20863)
