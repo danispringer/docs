@@ -1,6 +1,12 @@
 # Help Me Shine Brighter
 #### Sign up using **my links**, and we'll both get some free stuff
 
+### Investing Accounts
+  - Join Robinhood using code [daniels20863](https://join.robinhood.com/daniels20863)
+  - Join Webull using link [Webull](https://a.webull.com/8kstecCtaeVS4ZsVbz)
+  - Join Public.com using link [Public.com](https://share.public.com/danielspringer)
+  - Join Moomoo using link [Moomoo](https://j.moomoo.com/00kcml)
+
 ### Amazon
 - Gift [Amazon Prime](https://amzn.to/3bfeniq) to a friend
 - Try [Amazon Prime](https://amzn.to/3tPQxAa)
@@ -28,11 +34,6 @@
 - Phone desk [stand](https://amzn.to/3nykEIO)
 - Anker [Ergonomic mouse](https://amzn.to/3a4D8O5)
 
-### Investing Accounts
-  - Join Robinhood using code [daniels20863](https://join.robinhood.com/daniels20863)
-  - Join Webull using link [Webull](https://a.webull.com/8kstecCtaeVS4ZsVbz)
-  - Join Public.com using link [Public.com](https://share.public.com/danielspringer)
-  - Join Moomoo using link [Moomoo](https://j.moomoo.com/00kcml)
 ### Car Ride Accounts
   - Join Revel using code [6pm85f](http://app.gorevel.com/redeem-code/6pm85f)
   - Join Lyft using code [SPRINGER87167](https://www.lyft.com/i/SPRINGER87167?utm_medium=p2pi_iacc)
