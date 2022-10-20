@@ -3,7 +3,6 @@
 
 ### Investing Accounts
   - Join Robinhood using code [daniels20863](https://join.robinhood.com/daniels20863)
-  - Join Webull using link [Webull](https://a.webull.com/8kstecCtaeVS4ZsVbz)
   - Join Moomoo using link [Moomoo](https://j.moomoo.com/00kcml)
 
 ### Amazon
