@@ -11,4 +11,5 @@
 
 ## More Stuff
 - Buy my [apps](https://apple.co/3uyCNct)
+- Sign up for [PayPal](https://py.pl/26Zv1N), spend $5, get $10
 - [Get in touch](https://forms.gle/nkLPf2BcZy8V3VHA9)
