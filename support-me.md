@@ -6,7 +6,6 @@
   - Join Moomoo using my link [Moomoo](https://j.moomoo.com/00kcml)
 
 ### Get a Ride
-  - Join Revel using my code [6pm85f](http://app.gorevel.com/redeem-code/6pm85f)
   - Join Lyft using my code [SPRINGER87167](https://www.lyft.com/i/SPRINGER87167?utm_medium=p2pi_iacc)
 
 ## More Stuff
