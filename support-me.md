@@ -7,7 +7,7 @@
 
 ### Get a Ride
   - Join Lyft using my code [SPRINGER87167](https://www.lyft.com/i/SPRINGER87167?utm_medium=p2pi_iacc)
-  - Join Revel using my code ($30 towards your first ride) [http://app.gorevel.com/redeem-code/DANIES4339](DANIES4339)
+  - Join Revel using my code ($30 towards your first ride) [DANIES4339](http://app.gorevel.com/redeem-code/DANIES4339)
 
 ## More Stuff
 - Buy my [apps](https://apple.co/3uyCNct)
