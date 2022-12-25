@@ -1,5 +1,3 @@
-![logo](https://github.com/danispringer/docs/blob/master/images/star-400.jpg?raw=true&sanitize=true)
-
 ### Privacy Policy
 - Data Not Collected
 
