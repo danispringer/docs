@@ -1,5 +1,5 @@
 # Docs
-- This repo contains various info about Daniel Springer and his apps
+- This repo contains various info about me and my projects
 
 # Privacy Policy
 - Data Not Collected
