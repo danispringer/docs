@@ -1,4 +1,7 @@
-### Privacy Policy
+# Docs
+- This repo contains various info about Daniel Springer and his apps
+
+# Privacy Policy
 - Data Not Collected
 
 # Contact
