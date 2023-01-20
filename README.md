@@ -1,5 +1,5 @@
 # Docs
-- You can find various info about side-projects of mine, [here](https://github.com/daniSpringer/docs)
+- You can find various info about my side-projects, [here](https://github.com/daniSpringer/docs)
 
 # Privacy Policy
 - My apps do not collect data (they are also open source: find the code [here](https://github.com/DaniSpringer))
