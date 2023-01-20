@@ -1,8 +1,8 @@
 # Docs
-- You can find various projects of mine, [here](https://github.com/daniSpringer/docs)
+- You can find various info about side-projects of mine, [here](https://github.com/daniSpringer/docs)
 
 # Privacy Policy
-- My apps do not collect data (they are also open source: find the code [here](https://github.com/DaniSpringer)
+- My apps do not collect data (they are also open source: find the code [here](https://github.com/DaniSpringer))
 
 # Info
 - You can get my apps [here](https://apps.apple.com/us/developer/daniel-springer/id1402417666)
