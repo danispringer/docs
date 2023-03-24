@@ -1,9 +1,6 @@
 # Support Me
 #### Sign up using my links below, and we'll both get some free stuff
 
-### Play
-- Help me when you sign up to Chess.com Premium, by using my affiliate [link](http://www.chess.com/membership?ref_id=245090569) to sign up
-
 ### Invest
   - FREE stock when you join Robinhood using: [daniels20863](https://join.robinhood.com/daniels20863)
   - Join Moomoo using: [my link](https://j.moomoo.com/00kcml)
