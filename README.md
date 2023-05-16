@@ -1,3 +1,5 @@
+![logo](https://github.com/danispringer/docs/blob/master/images/star-400.jpg?raw=true&sanitize=true)
+***
 # Docs
 - You can find various info about my side-projects [here](https://github.com/DaniSpringer/docs)
 
