@@ -11,5 +11,5 @@
 
 ## More Stuff
 - Get my (sometimes free) **[apps](https://apps.apple.com/us/developer/daniel-springer/id1402417666)**
-- Sign up for **[PayPal](https://py.pl/7LE0B2AYHla)**, spend $5, get $10
+- Sign up for **[PayPal](https://py.pl/1j92mX)**, spend $5, get $10
 - [Get in touch](https://docs.google.com/forms/d/e/1FAIpQLSer21aRP8VWdepd9tBP8HmR5MH2-rOBfRq34GLQ-FwglpfRdg/viewform)
