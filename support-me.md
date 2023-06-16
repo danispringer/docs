@@ -6,8 +6,8 @@
   - Join **Moomoo** using: [my link](https://j.moomoo.com/00kcml)
 
 ### Get a Ride
-  - $10 off your first ride with **Lyft**: [SPRINGER87167](https://www.lyft.com/i/SPRINGER87167?utm_medium=p2pi_iacc)
   - $30 off your first ride with **Revel**: [DANIES4339](http://app.gorevel.com/redeem-code/DANIES4339)
+  - ~~$10 off your first ride with Lyft~~ Boycott Lyft
 
 ## More Stuff
 - Get my (sometimes free) **[apps](https://apps.apple.com/us/developer/daniel-springer/id1402417666)**
