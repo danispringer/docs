@@ -1,6 +1,6 @@
 # Support Me Using These Links
 1. Get $30 off your first ride with **Revel** using code [DANIES4339](http://app.gorevel.com/redeem-code/DANIES4339)
-2. Get free stock when you join **Robinhood** using code [daniels20863](https://join.robinhood.com/daniels20863)
+2. Get $5 or more when you join **Robinhood** using code [daniels20863](https://join.robinhood.com/daniels20863)
 3. Get $5 when first using **Cash App** using code [3JRLFVL](https://cash.app/app/3JRLFVL)
 4. Collect all of my five **[apps](https://apps.apple.com/us/developer/daniel-springer/id1402417666)**
 
