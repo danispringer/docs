@@ -2,7 +2,7 @@
 - You can find various info about my side-projects [here](https://github.com/danispringer/docs)
 
 # Privacy Policy
-- My apps do not collect data (find the code [here](https://github.com/danispringer))
+- My apps do not collect data
 
 # Info
 - You can get my apps [here](https://apps.apple.com/us/developer/daniel-springer/id1402417666)
